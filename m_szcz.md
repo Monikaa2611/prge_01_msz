@@ -1,1 +1,0 @@
-# geoinformatyka rządzi ohhhh yeahhh
